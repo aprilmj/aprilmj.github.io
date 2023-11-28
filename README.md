@@ -1,2 +1,3 @@
-# aprilmj.github.io
-April Johnson - coaching and consulting
+# Hi.
+I'm April.
+I help people design solutions that create positive change for other people.
